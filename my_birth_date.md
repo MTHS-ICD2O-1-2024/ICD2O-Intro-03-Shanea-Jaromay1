@@ -1,3 +1,3 @@
 # My Birth Day
 
-February-22
+22-February
